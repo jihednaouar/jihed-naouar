@@ -1,2 +1,0 @@
-# jihed-naouar
-My Portfolio
